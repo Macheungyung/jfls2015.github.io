@@ -1,6 +1,5 @@
 ## 欢迎来到 2020 级 15 班！
 
-### [TOP] 请各位班委点击蓝色标注的网站，来完成[问卷调查](https://forms.office.com/Pages/ResponsePage.aspx?id=DQSIkWdsW0yxEjajBLZtrQAAAAAAAAAAAAO__dd_h3dUME9OS1VUREI0SkROUlU3VjBLNkFaRDJFUy4u)！
 
 ### 班级规定-纪律
 2020级 15 班
@@ -36,7 +35,7 @@
 4）其他自律部相关扣分，均按照自律部扣分分数对个人进行扣分。
 
 四、通知、提醒与补充（若有，则会及时填充在下方）
-
+本规定自 2020/12/21 起实施。
 
 
 
