@@ -1,6 +1,6 @@
 ## 欢迎来到 2020 级 15 班！
-
-### 注意：本周个人量化数据正在处理，请耐心等待！大约于 2021/1/3 处理完毕并上传，届时可供查看！
+### 请所有班委在 2021/1/15 18:00 前[点击此处](https://forms.office.com/Pages/ResponsePage.aspx?id=DQSIkWdsW0yxEjajBLZtrQAAAAAAAAAAAAO__dd_h3dUQ0NHWTBGUUZIV1hZUlhLSVpKTlNCRVNJVC4u)填写完本周班委表格。
+### 注意：本周个人量化数据正在处理，请耐心等待！大约于 2021/1/15 处理完毕并上传，届时可供查看！
 
 
 ### 班级规定-纪律
